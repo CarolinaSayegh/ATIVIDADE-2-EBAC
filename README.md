@@ -1,2 +1,2 @@
-# ATIVIDADE-2-EBAC
+# ATIVIDADES-EBAC
 Análise de qualidade de produto - CAROLINA SAYEGH
